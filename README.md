@@ -5,10 +5,10 @@
 - ♂️ Pronouns: he/him
 - ⚡ Fun facts:
 - I like the planet Saturn!
-- My favorite game is TF2.
+- My favorite game is Hollow Knight (Original and Silksong)
 - I reply to all contacts!
 - Im very active.
-- My favorite drink is Water/Cola
+- My favorite drink is Cola
 
 
 <!---
